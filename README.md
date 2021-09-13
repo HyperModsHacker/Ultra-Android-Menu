@@ -1,6 +1,4 @@
-# ☭☭MOD MENU BY ISE STUDIO AND KOLAN HACKER☭☭
-# ☭☭ KOLAN HACKER: https://www.youtube.com/с/kolanhacker ☭☭
-# ☭☭ ISE STUDIO: https://www.youtube.com/channel/UC-FkzlZIMVymhSgo2v3oXPw ☭☭
+# ☭☭MOD MENU BY Личер студио☭☭
 # ☭LICENSE WITH PERMISSION BY AUTHOR☭
 # ✪IF U USE MENU PLEASE MAKE LINKS FOR ISE AND ME✪
 # ✪✪✪ENJOY TO USE✪✪✪
